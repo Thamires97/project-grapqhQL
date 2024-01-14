@@ -1,0 +1,1 @@
+Configuraçâo concluída.
